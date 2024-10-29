@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @1i2022szymon25
+- 👋 Hi, I’m @delusionalmikufan
 - 👀 I’m interested in hatsune miku
-- 🌱 I’m currently learning - no
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me - dont
+- 🌱 I’m currently learning hatsunemiku
+- 💞️ I’m looking to collaborate with hatsune miku
+- 📫 How to reach me through hatsune miku
 - 😄 Pronouns: Ilove/hatsunemiku
 - ⚡ Fun fact: im thinking miku miku ooo eee ooo
 
